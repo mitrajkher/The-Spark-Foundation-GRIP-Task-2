@@ -1,2 +1,1 @@
-"# The-Spark-Foundation-GRIP-Task-2" 
-"# The-Spark-Foundation-GRIP-Task-2" 
+The Sparks Foundation ---> GRIP - Task 2
